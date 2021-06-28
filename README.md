@@ -1,1 +1,0 @@
-Estou gostando bastante do curso!! Professores aplicados, que entendem bastante do conteúdo e sabem explicar.
